@@ -1,1 +1,1 @@
-Software Engineering student at VIT Chennai 🎓 Exploring technology, digital design and creative problem-solving. Passionate about learning, experimenting with new ideas and building meaningful projects. 🌱 Always curious, always creating, always growing. ✨
+Software Engineering student at VIT Chennai | Exploring technology, digital design and creative problem-solving | Passionate about learning, experimenting with new ideas and building meaningful projects | Always curious, always creating, always growing. 
